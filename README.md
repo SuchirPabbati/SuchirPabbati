@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there check out my [LinkedIn]([url](https://www.linkedin.com/in/suchir-pabbati/))👋
 
 <!--
 **SuchirPabbati/SuchirPabbati** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
